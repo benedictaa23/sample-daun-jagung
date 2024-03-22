@@ -1,1 +1,1 @@
-# sample-daun-jagung
+# sample-daun-jagung-buruk
